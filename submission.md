@@ -1,0 +1,1 @@
+My area of expertise is utilizing the customer service skills I've developed over the years to assist others with their needs and desires. With my previous experience on jobs I was able to learn basic computer maintenance, how to manage different applications, and build determination in finding resolutions to issues 
